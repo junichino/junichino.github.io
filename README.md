@@ -1,1 +1,0 @@
-# junichino.github.io
